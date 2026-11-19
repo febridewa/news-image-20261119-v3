@@ -26,7 +26,7 @@ a region-count strip, a by-the-numbers strip, and a DATE CHECK box:
    Claude maker raised $81.3bn and is valued near $1.5tn.
 
 Plus the ICJ's Rohingya verdict, COP31's final 48 hours, Cyclone Akvan,
-Ukraine left off the Shenzhen agenda, the APEC Shenzhen Declaration,
+Ukraine left off the Shenzhen agenda, the APEC leaders' meeting,
 Florida floods, Earth's missing billion years, Mélenchon, Saudi Arabia's
 all-clear, and a record $190.4m Van Gogh — and 37 more briefs from every
 region, including the Coalition of the Willing meeting in Berlin, the
